@@ -48,6 +48,6 @@ Cars, nature, creativity, and the joy of building things.
 
 *Keep building. Keep exploring. Keep moving forward.*
 
- **ADLER IS BACK**
+ 
 
 </div>
